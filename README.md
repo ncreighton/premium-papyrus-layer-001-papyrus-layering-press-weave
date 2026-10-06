@@ -1,0 +1,2 @@
+# premium-papyrus-layer-001-papyrus-layering-press-weave
+Tired of losing track of which papyrus layer needs pressing, when the weave pattern starts, or where your materials stand across multiple projects?  The Papyrus Layering &amp; Press Weave Craft Hub is the first Notion template purpose-built for the intricate workflow of papyrus layering and press weave crafts. It replaces scattered notes and sticky rem
